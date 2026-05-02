@@ -1,4 +1,3 @@
-
 ## About me ₍^. .^₎⟆
 
 I'm a beginner in programming curious about software development and data analysis.
