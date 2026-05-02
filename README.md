@@ -1,4 +1,3 @@
-# Maria Eduarda ✮⋆˙
 
 ## About me ₍^. .^₎⟆
 
